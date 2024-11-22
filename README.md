@@ -15,3 +15,5 @@
 - ⚡ Curiosidade:sou linda🤟
 
 ![](https://media1.tenor.com/m/_xxRqDH6rMsAAAAd/anitta-anittapeniuaise.gif)
+
+[igarata](https://youtu.be/XCQ1bqQPciA?si=yqh8GOTdskVGLtQ4)
