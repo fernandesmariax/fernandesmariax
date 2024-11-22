@@ -10,7 +10,7 @@
 -  Procuro colaborar em tudo😘
 -  Estou procurando ajuda com psicologos👻
 -  Pergunte-me sobre nada(pois nao sei)😮
--  Como entrar em contato comigo:insta:@fernandes.mariax
+-  Como entrar em contato comigo:insta: @fernandes.mariax OU maria.fernandes.pereira20@escola.pr.gov.br
 -  Pronomes: lin/da🤣
 - ⚡ Curiosidade:sou linda🤟
 
